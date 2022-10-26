@@ -1,0 +1,2 @@
+# pratik12_kucuktenBuyugeSiralama
+ pratik12_kucuktenBuyugeSiralama
